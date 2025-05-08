@@ -1,6 +1,6 @@
 # 🌐 Welcome to **Ajoxi** – Revolutionizing Business Communication Solutions! 🚀
 
-[Visit Ajoxi](https://www.ajoxi.com/) is a leading provider of high-quality, cost-effective, and scalable communication solutions that empower businesses worldwide. We specialize in delivering seamless connectivity, crystal-clear communication, and robust platforms designed to enhance customer engagement and drive business success.
+[Ajoxi](https://www.ajoxi.com/) is a leading provider of high-quality, cost-effective, and scalable communication solutions that empower businesses worldwide. We specialize in delivering seamless connectivity, crystal-clear communication, and robust platforms designed to enhance customer engagement and drive business success.
 
 ## 🌍 **Why Choose Ajoxi?**
 
